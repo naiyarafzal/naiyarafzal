@@ -51,7 +51,8 @@ I'm interested in collaborating on:
 ## 📫 Connect With Me
 
 * 📧 Email: mdnaiyarafzal@gmail.com (mailto:mdnaiyarafzal@gmail.com)
-* 💼 LinkedIn: *(Add your LinkedIn profile here)*
+* 💼 LinkedIn: www.linkedin.com/in/naiyarafzal
+
 * 🌐 Portfolio: *(Add your portfolio if available)*
 
 ---
